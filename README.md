@@ -1,4 +1,0 @@
-nauka
-=====
-
-nauka
